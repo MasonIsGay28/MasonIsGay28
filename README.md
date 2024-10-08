@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...Gmail danielm25@circlevillecityschools.org
 - 😄 Pronouns: ...They/Them He/Him
-- ⚡ Fun fact: ... I kind 
+- ⚡ Fun fact: ... I'm kind to mostly everyone
 
 <!---
 MasonIsGay28/MasonIsGay28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
